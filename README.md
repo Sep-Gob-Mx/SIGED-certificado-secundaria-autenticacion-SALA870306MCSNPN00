@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-SALA870306MCSNPN00
+SALA870306MCSNPN00
